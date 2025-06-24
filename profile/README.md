@@ -23,8 +23,8 @@ This Rosetta Stone deal gives you the freedom to learn from **25+ languages**, i
 
 Get [**45% off**](https://www.rosettastone.com/) when you enroll in a single-language learning program. With this Rosetta Stone coupon, you are paying just **$131.40** instead of **$239.40**.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXca1wJLqWOe3pGtXIZtIlsK_3-YGbSx2j6aKR4d6XVf_XqEVaalvFnsPpEea47tPFrDhDkYPY0N3NeCfEJGxs1eUHkdY6OhLAwBrTCcD8MTPbcpx_-Ba69d-nhFatcFlVEr9zwFog?key=5fI_2zDiiHmrP87QzjBwipSJ)
-
+[![Rosetta stone coupon](https://lh7-rt.googleusercontent.com/docsz/AD_4nXca1wJLqWOe3pGtXIZtIlsK_3-YGbSx2j6aKR4d6XVf_XqEVaalvFnsPpEea47tPFrDhDkYPY0N3NeCfEJGxs1eUHkdY6OhLAwBrTCcD8MTPbcpx_-Ba69d-nhFatcFlVEr9zwFog?key=5fI_2zDiiHmrP87QzjBwipSJ)
+](https://www.rosettastone.com/)
 With this Rosetta Stone coupon code, you will get access to:
 
 - You get to learn one language of your choice through engaging lessons.
