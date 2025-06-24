@@ -16,6 +16,7 @@ Hurry, click the button below to grab it before it's gone.
 
 [![Rosetta stone coupon](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfTvkjgZKGJQE67Zc3dBRqM5TV6n3kgHuwJffGvWSRd0f4hlqSNq00sHaC6d39sa86gwFl2FR4veCyYBPKHwu0czcHAPX25cDtk0Fep_Osv8Ie3NdM3rHwY78sbCosWejlQ2gfKCw?key=5fI_2zDiiHmrP87QzjBwipSJ)
 ](https://www.rosettastone.com/)
+
 This Rosetta Stone deal gives you the freedom to learn from **25+ languages**, including Spanish (Latin America & Spain), French, German, Italian, Japanese, Korean, Mandarin Chinese, and more.
 
 ## Rosetta Stone Coupon | Get 45% OFF [Single-Language]
